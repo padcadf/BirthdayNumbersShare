@@ -1,0 +1,1 @@
+Narozeniny jsou důležitým dnem. Můžete poslat pár obrázků souvisejících s narozeninami svým přátelům nebo rodině!
